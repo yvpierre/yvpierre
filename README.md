@@ -1,3 +1,3 @@
 @yvpierre
-20 Years old computer science student
-web / data 
+20 Years old computer web driven science student
+
